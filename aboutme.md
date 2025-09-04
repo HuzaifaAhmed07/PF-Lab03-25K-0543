@@ -1,0 +1,3 @@
+Huzaifa Ahmed
+Bs-CS in FAST
+HOBBY: PLAYING BASKETBALL
